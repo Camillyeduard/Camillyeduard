@@ -1,4 +1,4 @@
-### Oii, eu sou Camilly Eduarda! 👋
+### Oii, eu sou Camilly Eduarda! 🌼
 
 ・ 🎨 Futura Front-End e Desenvolvedora.
 
@@ -6,5 +6,5 @@
 
 ・ 🐱‍💻 Contate-me no email: contatocamillyeduarda@gmail.com
 
-・ 🃏 Pronouns: Ela/dela
+・ 🃏 Pronomes: Ela/dela
 
