@@ -7,4 +7,3 @@
 ・ 🐱‍💻 Contate-me no email: contatocamillyeduarda@gmail.com
 
 ・ 🃏 Pronomes: Ela/dela
-
