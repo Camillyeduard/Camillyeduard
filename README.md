@@ -2,9 +2,9 @@
 
 ・ 🎨 Futura Front-End e Desenvolvedora.
 
-・ 👾Estou estudando Linguagem C e JavaScript
+・ 👾 Estou estudando Linguagem C e JavaScript
 
-・ 🐱‍💻Contate-me no email: contatocamillyeduarda@gmail.com
+・ 🐱‍💻 Contate-me no email: contatocamillyeduarda@gmail.com
 
 ・ 🃏 Pronouns: Ela/dela
 
