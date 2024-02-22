@@ -2,7 +2,7 @@
 
 ・ 🎨 Futura Front-End e Desenvolvedora.
 
-・ 👾 Estou estudando Linguagem C e JavaScript
+・ 👾 Estou estudando HTML, CSS e JavaScript
 
 ・ 🐱‍💻 Contate-me no email: contatocamillyeduarda@gmail.com
 
